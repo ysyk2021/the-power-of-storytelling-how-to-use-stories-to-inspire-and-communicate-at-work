@@ -1,5 +1,3 @@
-Developing Strategies for Telling Compelling Stories
-====================================================================================================
 
 Telling a compelling story is a skill that can be developed and improved upon over time. To effectively communicate with storytelling, it's important to develop strategies for crafting and delivering stories that engage and resonate with your audience.
 

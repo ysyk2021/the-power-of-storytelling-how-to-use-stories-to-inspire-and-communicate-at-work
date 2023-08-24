@@ -1,5 +1,3 @@
-Encouraging Proactive Storytelling Across the Organization
-=========================================================================================================
 
 While storytelling can be a powerful tool for individual leaders and communicators, it is even more impactful when it becomes a part of the organizational culture. By encouraging proactive storytelling across the organization, you can create a sense of shared purpose and engage employees at all levels. In this chapter, we will explore techniques for creating a culture of storytelling.
 

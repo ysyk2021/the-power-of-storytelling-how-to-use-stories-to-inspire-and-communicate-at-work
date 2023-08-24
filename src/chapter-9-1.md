@@ -1,5 +1,3 @@
-Identifying Storytelling Technologies and Resources
-======================================================================================================
 
 In order to leverage technology for storytelling, it's important to identify the right technologies and resources that can help enhance your storytelling experience. Here are some examples of storytelling technologies and resources you can use:
 
@@ -51,5 +49,4 @@ Conclusion
 ----------
 
 There are countless technologies and resources available that can help enhance your storytelling experience. By identifying the right tools for your needs, you can create engaging stories that capture the imagination of your audience. Whether you're using multimedia tools to create visual and audio content, social media platforms to share your stories with a wider audience, or VR and AR technologies to create immersive experiences, there are endless possibilities for leveraging technology for storytelling.
-
 

@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Storytelling
-========================================================================================================
 
 While storytelling can be a powerful tool for communication and inspiration in the workplace, it's not always embraced by everyone. In this chapter, we'll explore common sources of resistance to storytelling and strategies for managing them.
 

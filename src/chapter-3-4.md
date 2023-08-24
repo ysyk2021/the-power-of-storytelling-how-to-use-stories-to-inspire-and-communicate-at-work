@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Storytelling
-====================================================================================================
 
 In addition to setting realistic goals and objectives, developing a storytelling mindset also involves developing empathy and compassion through storytelling. When we hear stories that resonate with us, we are more likely to feel empathy towards the characters and their experiences. This can help us develop a deeper understanding of others and build stronger relationships.
 

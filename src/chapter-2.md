@@ -1,5 +1,3 @@
-Chapter 2: Defining Storytelling
-================================
 
 Effective storytelling can be a powerful tool for communication and inspiration in the workplace. In this chapter, we'll explore what storytelling is, the science behind it, and how to assess your personal approach to storytelling.
 

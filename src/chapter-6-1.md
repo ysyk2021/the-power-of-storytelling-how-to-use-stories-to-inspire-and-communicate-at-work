@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Storytelling
-======================================================================================================
 
 Telling a compelling story is not just about having a good idea or interesting topic. To effectively communicate with storytelling, it's important to understand the principles of effective storytelling.
 

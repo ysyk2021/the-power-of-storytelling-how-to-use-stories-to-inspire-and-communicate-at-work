@@ -1,5 +1,3 @@
-Celebrating Storytelling Achievements
-====================================================================================
 
 Storytelling can be a powerful tool for communication and inspiration in the workplace. To fully leverage its benefits, creating a culture of storytelling is key. This chapter will explore how to cultivate a workplace environment that celebrates storytelling achievements.
 

@@ -1,5 +1,3 @@
-Overview of Storytelling
-==========================================================
 
 Storytelling is an ancient art form that has been used for centuries to entertain, educate, and inspire. In the modern workplace, storytelling is increasingly recognized as a powerful tool for communication, leadership, and personal branding. In this chapter, we will explore the definition of storytelling and its importance in the workplace.
 

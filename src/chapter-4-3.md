@@ -1,5 +1,3 @@
-Analyzing the Impact of Storytelling on Individuals and Organizations
-=========================================================================================================================
 
 Storytelling has the power to inspire, engage, and motivate individuals and organizations. By understanding the impact that storytelling can have, you can better appreciate its value in a business context and harness it for effective communication.
 

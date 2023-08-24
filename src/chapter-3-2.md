@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-============================================================================================
 
 Developing a storytelling mindset involves not only understanding the power of storytelling but also cultivating a positive mindset towards it. Utilizing positive self-talk and visualization can help you develop confidence in your storytelling abilities and achieve your communication goals.
 

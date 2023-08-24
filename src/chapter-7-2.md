@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-===============================================================================================
 
 While storytelling can be a powerful tool for communication, not everyone may be receptive to it. Some people may be resistant to using storytelling in a business context, either because they don't see the value in it or because they are uncomfortable with it. As a result, it's important to develop strategies for overcoming resistance to storytelling.
 
@@ -28,5 +26,4 @@ To overcome resistance to storytelling, consider the following strategies:
 * Measure effectiveness: Track the effectiveness of your storytelling efforts by setting specific goals and objectives and measuring progress towards those goals. This can help demonstrate the value of storytelling and overcome skepticism.
 
 By incorporating these strategies into your storytelling efforts, you can overcome resistance and help others see the value in using storytelling as a tool for effective communication.
-
 

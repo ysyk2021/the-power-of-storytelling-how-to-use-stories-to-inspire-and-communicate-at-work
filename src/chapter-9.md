@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Storytelling
-=================================================
 
 Technology can be a powerful tool for storytelling in the workplace. From social media to multimedia platforms, technology offers a range of ways to engage and inspire your audience. In this chapter, we will explore techniques for leveraging technology for storytelling.
 

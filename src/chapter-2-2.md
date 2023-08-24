@@ -1,5 +1,3 @@
-Understanding the Science Behind Storytelling
-===============================================================================
 
 Storytelling is more than just an art form - it is also rooted in science. Understanding the psychological and neurological underpinnings of storytelling can help you become a more effective storyteller and communicator. In this chapter, we will explore the science behind storytelling.
 

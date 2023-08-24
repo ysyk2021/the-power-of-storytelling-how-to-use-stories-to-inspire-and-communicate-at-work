@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Storytelling
-==================================================================================
 
 Effective storytelling requires more than just an understanding of the principles and mechanics of storytelling. It also requires a self-awareness of your personal approach to storytelling, including your strengths, weaknesses, and style. In this chapter, we will explore techniques for assessing your personal approach to storytelling.
 

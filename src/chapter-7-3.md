@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-===============================================================================
 
 Fear and uncertainty can be significant barriers to effective storytelling in the workplace. In this chapter, we'll explore strategies for addressing these emotions and managing resistance to storytelling.
 

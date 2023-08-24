@@ -1,5 +1,3 @@
-Common Misconceptions About Storytelling
-=================================================================
 
 While storytelling is a powerful tool for communication and inspiration, there are also many misconceptions about what it means to tell a good story. In this chapter, we will explore some of the most common misconceptions about storytelling.
 

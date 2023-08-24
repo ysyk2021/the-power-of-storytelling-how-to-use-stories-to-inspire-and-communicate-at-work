@@ -1,5 +1,3 @@
-Fostering Emotional Connection
-==============================================================================
 
 Storytelling is a powerful tool for inspiring and communicating at work. To maximize the impact of your storytelling, it is important to foster emotional connection with your audience. In this chapter, we will explore techniques for fostering emotional connection through storytelling.
 

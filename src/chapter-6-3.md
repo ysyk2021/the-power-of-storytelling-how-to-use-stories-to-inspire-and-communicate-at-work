@@ -1,5 +1,3 @@
-Utilizing Feedback and Coaching
-===============================================================================
 
 Storytelling is a skill that can be developed and refined over time. In this chapter, we'll explore how to utilize feedback and coaching to improve your storytelling skills.
 

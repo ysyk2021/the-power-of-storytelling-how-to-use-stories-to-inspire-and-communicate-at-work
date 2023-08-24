@@ -1,5 +1,3 @@
-Identifying Opportunities to Use Storytelling in the Workplace
-==============================================================================================================
 
 Storytelling can be a valuable tool in the workplace, helping individuals communicate more effectively, build relationships, and achieve their goals. To maximize your storytelling skills, it's important to identify opportunities for using storytelling in the workplace.
 

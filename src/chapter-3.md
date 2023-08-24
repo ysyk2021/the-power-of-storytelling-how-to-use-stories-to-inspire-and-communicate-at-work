@@ -1,5 +1,3 @@
-Chapter 3: Developing a Storytelling Mindset
-============================================
 
 To become an effective storyteller, it's important to cultivate a storytelling mindset. This chapter will explore techniques for developing this mindset, including positive self-talk, visualization, goal-setting, and empathy-building.
 

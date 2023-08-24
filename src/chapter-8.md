@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Storytelling
-=============================================
 
 Creating a culture of storytelling is critical for success in the modern workplace. By encouraging proactive storytelling, providing training and development opportunities, fostering knowledge sharing, and celebrating storytelling achievements, organizations can build engagement and inspire action. In this chapter, we will explore techniques for creating a culture of storytelling.
 

@@ -1,4 +1,3 @@
-# Conclusion
 
 Effective storytelling is a critical skill for success in the modern workplace. By using stories to communicate messages, leaders can engage their audience on an emotional and intellectual level, build trust and rapport, and inspire action. In this final chapter, we will recap key strategies for effective storytelling and provide some final thoughts and advice.
 

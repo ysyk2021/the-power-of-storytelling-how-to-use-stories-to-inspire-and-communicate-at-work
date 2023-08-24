@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-==========================================================================================
 
 Technology can be a powerful tool for storytelling in the workplace, but it's important to ensure that everyone has access to this content. In this chapter, we'll explore how to leverage technology for storytelling while fostering accessibility and inclusivity.
 

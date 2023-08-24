@@ -1,5 +1,3 @@
-Finding Ways to Develop Your Storytelling Abilities
-===================================================================================================
 
 Storytelling is a valuable skill that can be developed and refined over time. To maximize your storytelling skills, it's important to find ways to continually develop your abilities and grow as a storyteller.
 

@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 Effective storytelling requires ongoing evaluation and improvement to ensure that your messages are resonating with your audience. In this chapter, we will explore techniques for measuring results and learning from experience.
 

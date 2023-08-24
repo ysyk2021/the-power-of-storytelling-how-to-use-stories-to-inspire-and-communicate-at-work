@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Storytelling
-==============================================
 
 Incorporating storytelling into workplace communication can be a powerful tool, but it may also face resistance from colleagues or team members. This chapter will explore common sources of resistance to storytelling and provide strategies for overcoming them.
 

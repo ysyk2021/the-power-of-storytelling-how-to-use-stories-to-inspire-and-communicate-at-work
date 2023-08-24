@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-==========================================================================
 
 In addition to developing strategies for overcoming resistance to storytelling, it's also important to foster a growth mindset when it comes to storytelling. This means embracing the idea that storytelling is a skill that can be developed and improved upon over time.
 

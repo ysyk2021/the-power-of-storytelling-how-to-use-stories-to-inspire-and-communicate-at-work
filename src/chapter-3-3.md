@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-====================================================================================
 
 In order to use storytelling effectively in a business context, it's important to develop a storytelling mindset. This means understanding the role of storytelling in communication and setting realistic goals and objectives for your storytelling efforts.
 

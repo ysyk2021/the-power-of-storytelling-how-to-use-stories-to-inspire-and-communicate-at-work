@@ -1,5 +1,3 @@
-Avoiding Information Overload
-================================================================================
 
 In today's digital age, technology can be a valuable tool for storytelling in the workplace. However, it can also contribute to information overload and make it difficult to effectively communicate with employees. This chapter will explore how to leverage technology for storytelling while avoiding information overload.
 

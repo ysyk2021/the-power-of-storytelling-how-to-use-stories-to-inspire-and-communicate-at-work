@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 To ensure that your storytelling efforts are effective, it's important to track progress and measure results. In this chapter, we'll explore how to measure the impact of your storytelling efforts and learn from experience.
 
