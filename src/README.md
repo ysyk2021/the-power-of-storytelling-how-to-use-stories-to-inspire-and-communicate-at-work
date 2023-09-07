@@ -10,3 +10,7 @@ This book explores the art of storytelling in the workplace, providing practical
 Whether you're a leader looking to inspire your team, a marketer seeking to connect with your customers, or an individual looking to develop your communication skills, this book will help you unlock the power of storytelling and achieve your goals.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
