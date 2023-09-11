@@ -1,5 +1,4 @@
-Chapter 5: Assessing Your Personal Approach to Storytelling
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to assess your personal approach to storytelling in the workplace. By reflecting on your storytelling skills, strengths, and areas for improvement, you can enhance your ability to inspire and communicate effectively. Let's delve into the process of assessing your personal approach to storytelling.
 

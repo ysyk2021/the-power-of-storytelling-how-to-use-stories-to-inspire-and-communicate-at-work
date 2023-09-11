@@ -1,5 +1,4 @@
-Chapter 8: Developing Empathy and Compassion through Storytelling
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound role of storytelling in developing empathy and compassion in the workplace. By using stories to connect with others on an emotional level, we can foster a more compassionate and empathetic work environment. Let's delve into the strategies and benefits of using storytelling to cultivate empathy and compassion.
 

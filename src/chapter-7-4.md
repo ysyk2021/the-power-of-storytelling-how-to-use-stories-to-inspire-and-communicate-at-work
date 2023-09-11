@@ -1,5 +1,4 @@
-Chapter 9: Fostering a Growth Mindset
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of fostering a growth mindset and its significance in leveraging storytelling to inspire and communicate in the workplace. By cultivating a growth mindset, individuals can embrace challenges, learn from feedback, and continuously improve their storytelling skills. Let's delve into the key strategies for fostering a growth mindset.
 

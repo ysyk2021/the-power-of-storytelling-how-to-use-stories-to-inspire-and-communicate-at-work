@@ -1,5 +1,4 @@
-Chapter 8: Avoiding Information Overload
-========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for avoiding information overload when using storytelling to inspire and communicate effectively at work. In today's fast-paced and information-rich world, it is essential to deliver stories in a way that captures attention and prevents overwhelming the audience. Let's delve into the key techniques for avoiding information overload.
 

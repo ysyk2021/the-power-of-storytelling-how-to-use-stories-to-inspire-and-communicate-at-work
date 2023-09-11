@@ -7,8 +7,7 @@ Conclusion
 
 Adapting to changes in the workplace is crucial for organizational success, and storytelling can play a significant role in facilitating this process. By embracing change as a storytelling opportunity, tailoring stories to the changing landscape, fostering collaboration and inclusion, leveraging digital platforms for change communication, and encouraging continuous learning and adaptation, individuals and organizations can navigate transitions effectively and foster a culture of resilience and innovation. Embrace these techniques to harness the power of storytelling in adapting to changes and driving positive outcomes within your workplace.
 
-Chapter 16: Using Technology to Enhance Your Storytelling Experience
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how technology can be used to enhance your storytelling experience in the workplace. Technological advancements offer new opportunities to engage your audience, create immersive experiences, and deliver impactful messages. Let's delve into the key ways you can leverage technology to enhance your storytelling practice.
 
@@ -52,8 +51,7 @@ Conclusion
 
 Technology offers a wide range of opportunities to enhance your storytelling experience in the workplace. By integrating multimedia elements, leveraging interactive storytelling tools, utilizing digital storytelling platforms, employing data visualization tools, utilizing online collaboration platforms, and embracing social media, you can create more engaging and impactful stories. Embrace these technological advancements to captivate your audience, deliver your messages effectively, and inspire meaningful change within your organization.
 
-Chapter 18: Fostering Accessibility and Inclusivity
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering accessibility and inclusivity in storytelling at work. By ensuring that your stories are accessible to all individuals, regardless of their abilities or backgrounds, you can create a more inclusive and engaging workplace environment. Let's delve into the key techniques for fostering accessibility and inclusivity in your storytelling practice.
 

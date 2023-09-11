@@ -1,5 +1,4 @@
-Chapter 12: Developing Strategies for Overcoming Resistance
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for overcoming resistance to storytelling in the workplace. Recognizing and addressing resistance is crucial for successfully implementing storytelling techniques and maximizing their impact. Let's delve into the strategies that can help overcome resistance and create a culture receptive to storytelling.
 

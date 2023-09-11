@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Focusing on Storytelling
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of focusing on storytelling in the workplace. By harnessing the power of storytelling, individuals and organizations can enhance communication, inspire, and create meaningful connections. Let's delve into the advantages that storytelling brings to the table.
 

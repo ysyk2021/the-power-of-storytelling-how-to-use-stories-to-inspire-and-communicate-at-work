@@ -1,5 +1,4 @@
-Chapter 12: Continuous Learning and Improvement
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of continuous learning and improvement in leveraging the power of storytelling to inspire and communicate effectively at work. By embracing a mindset of ongoing growth and refinement, individuals can elevate their storytelling skills and create a lasting impact. Let's delve into the key strategies for continuous learning and improvement.
 

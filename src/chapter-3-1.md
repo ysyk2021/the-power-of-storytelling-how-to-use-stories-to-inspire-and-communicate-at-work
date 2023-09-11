@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Cultivating a Storytelling Mindset
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques and strategies to cultivate a storytelling mindset in the workplace. Developing a storytelling mindset enables individuals to recognize and embrace the power of stories, enhancing their ability to inspire and communicate effectively. Let's delve into the key techniques for cultivating a storytelling mindset.
 

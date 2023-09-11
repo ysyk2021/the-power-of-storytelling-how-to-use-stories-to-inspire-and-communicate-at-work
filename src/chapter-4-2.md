@@ -1,5 +1,4 @@
-Chapter 10: Recognizing How Storytelling Contributes to Success
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how storytelling contributes to success in the workplace. By recognizing the impact of storytelling, individuals and organizations can harness its power to inspire, influence, and achieve their goals. Let's delve into the ways storytelling drives success.
 

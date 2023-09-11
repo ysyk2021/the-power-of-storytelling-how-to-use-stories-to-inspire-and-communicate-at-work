@@ -1,5 +1,4 @@
-Chapter 12: Communicating Authentically and Effectively
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of communicating authentically and effectively through storytelling in the workplace. By honing your communication skills and staying true to yourself, you can establish trust, inspire action, and foster meaningful connections with your audience. Let's delve into the art of authentic and effective communication through storytelling.
 

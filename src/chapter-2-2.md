@@ -1,5 +1,4 @@
-Chapter 7: Understanding the Science Behind Storytelling
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind storytelling and how it influences human cognition, emotions, and behavior. By understanding the psychological and neurological processes that storytelling triggers, individuals can harness its power more effectively in the workplace. Let's delve into the science behind storytelling.
 

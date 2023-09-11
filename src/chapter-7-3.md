@@ -1,5 +1,4 @@
-Chapter 7: Addressing Fear and Uncertainty
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for addressing fear and uncertainty when using storytelling in the workplace. Fear and uncertainty can hinder the adoption of storytelling techniques, but by acknowledging and addressing these concerns, we can create a more supportive and receptive environment for storytelling. Let's delve into effective strategies to address fear and uncertainty.
 

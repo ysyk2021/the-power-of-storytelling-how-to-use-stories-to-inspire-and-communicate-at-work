@@ -1,5 +1,4 @@
-Chapter 6: Identifying Common Sources of Resistance to Storytelling
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common sources of resistance to storytelling in the workplace. Understanding these barriers is essential for effectively implementing storytelling strategies and overcoming resistance. Let's delve into the factors that may hinder the acceptance and adoption of storytelling.
 

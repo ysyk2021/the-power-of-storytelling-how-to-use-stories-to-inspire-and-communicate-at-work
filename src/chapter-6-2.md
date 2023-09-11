@@ -1,5 +1,4 @@
-Chapter 5: Developing Strategies for Telling Compelling Stories
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for developing and telling compelling stories that inspire and communicate at work. By mastering the art of storytelling, you can captivate your audience, convey meaningful messages, and leave a lasting impact. Let's dive into the key strategies for crafting and delivering compelling stories.
 

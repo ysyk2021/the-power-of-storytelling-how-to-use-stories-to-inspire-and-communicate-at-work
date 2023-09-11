@@ -1,5 +1,4 @@
-Chapter 6: Utilizing Feedback and Coaching
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of utilizing feedback and coaching in harnessing the power of storytelling at work. Feedback and coaching play a crucial role in refining storytelling skills, enhancing communication, and fostering continuous improvement. Let's delve into strategies for effectively utilizing feedback and coaching to become a master storyteller.
 

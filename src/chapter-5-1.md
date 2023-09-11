@@ -1,5 +1,4 @@
-Chapter 4: Identifying Opportunities to Use Storytelling in the Workplace
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various opportunities where storytelling can be effectively utilized in the workplace. Identifying these opportunities allows individuals and organizations to harness the power of storytelling to inspire, communicate, and connect with others. Let's delve into the different scenarios and contexts where storytelling can make a meaningful impact.
 

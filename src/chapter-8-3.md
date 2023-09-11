@@ -1,5 +1,4 @@
-Chapter 10: Fostering Knowledge Sharing and Mentorship
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how fostering knowledge sharing and mentorship can enhance the power of storytelling in the workplace. By creating a culture that values and encourages the exchange of knowledge and experiences, organizations can leverage the collective wisdom of their employees and empower individuals to learn, grow, and inspire others through storytelling. Let's delve into the key techniques for fostering knowledge sharing and mentorship in your storytelling practice.
 

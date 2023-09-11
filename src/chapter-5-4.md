@@ -1,5 +1,4 @@
-Chapter 6: Fostering Emotional Connection
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of fostering emotional connections through storytelling in the workplace. By tapping into emotions, stories have the power to engage, inspire, and build deeper connections with others. Let's delve into the key elements of fostering emotional connection through storytelling.
 

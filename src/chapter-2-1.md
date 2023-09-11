@@ -1,5 +1,4 @@
-Chapter 1: Overview of Storytelling
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will provide an overview of storytelling and its significance in the workplace. We'll explore what storytelling is, why it matters, and how it can be a powerful tool for inspiring, connecting, and communicating effectively. Let's dive into the world of storytelling.
 

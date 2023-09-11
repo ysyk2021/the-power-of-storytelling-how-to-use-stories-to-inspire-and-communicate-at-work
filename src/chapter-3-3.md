@@ -1,5 +1,4 @@
-Chapter 8: Setting Realistic Goals and Objectives
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and objectives when using storytelling in the workplace. Establishing clear and attainable goals helps guide the storytelling process, ensuring that your efforts align with desired outcomes. Let's dive into the key aspects of setting realistic goals and objectives for effective storytelling.
 

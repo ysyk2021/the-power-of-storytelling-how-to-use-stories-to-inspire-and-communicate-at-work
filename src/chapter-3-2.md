@@ -1,5 +1,4 @@
-Chapter 7: Utilizing Positive Self-Talk and Visualization
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the techniques of utilizing positive self-talk and visualization to enhance storytelling and communication in the workplace. By harnessing the power of our thoughts and mental imagery, we can amplify the impact of our stories and inspire others. Let's dive into the key strategies for utilizing positive self-talk and visualization.
 

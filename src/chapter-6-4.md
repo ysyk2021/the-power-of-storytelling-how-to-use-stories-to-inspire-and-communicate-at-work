@@ -1,5 +1,4 @@
-Chapter 12: Fostering Continuous Learning and Improvement
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how storytelling can foster a culture of continuous learning and improvement within the workplace. By leveraging the power of stories, individuals and organizations can encourage growth, innovation, and ongoing development. Let's delve into the ways storytelling can support continuous learning and improvement.
 

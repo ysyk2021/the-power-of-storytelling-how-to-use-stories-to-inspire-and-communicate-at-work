@@ -1,5 +1,4 @@
-Chapter 10: Finding Ways to Develop Your Storytelling Abilities
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various approaches to develop and enhance your storytelling abilities in the workplace. By investing time and effort into honing your storytelling skills, you can become a more impactful and inspiring communicator. Let's delve into the strategies and techniques for developing your storytelling abilities.
 

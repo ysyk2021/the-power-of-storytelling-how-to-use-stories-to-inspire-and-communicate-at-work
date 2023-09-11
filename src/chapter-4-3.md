@@ -1,5 +1,4 @@
-Chapter 7: Analyzing the Impact of Storytelling on Individuals and Organizations
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that storytelling can have on individuals and organizations within the workplace. By analyzing the effects of storytelling, we can better understand its significance in inspiring, connecting, and driving positive change. Let's delve into the transformative impact of storytelling.
 

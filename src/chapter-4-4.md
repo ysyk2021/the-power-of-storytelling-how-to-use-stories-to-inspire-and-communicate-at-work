@@ -1,5 +1,4 @@
-Chapter 9: Addressing Limiting Beliefs
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing limiting beliefs when using storytelling to inspire and communicate at work. By recognizing and challenging these beliefs, individuals can overcome barriers and unlock their full potential. Let's delve into the process of addressing limiting beliefs through storytelling.
 

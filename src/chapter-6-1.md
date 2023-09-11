@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Principles of Effective Storytelling
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the principles that underpin effective storytelling in the workplace. By understanding these principles, you can craft powerful narratives that inspire and communicate with impact. Let's explore the key principles that contribute to effective storytelling.
 
